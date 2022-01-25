@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @idiotaas
+- 👀 I’m interested in asjdfaksdjfhlaskjdvkabdjkbvkbadnbvmnzxcbv,mdbalsjvbhajcb vmzxbcvbm <-- stroke
+- 💞️ I’m looking to collaborate on being a gamer :)
+- 📫 How to reach me nothing.
